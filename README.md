@@ -5,6 +5,6 @@
 
  •  💻  Ex. IBM Cloud & Cognitive Software Intern
 
- •  [LinkedIn Profile](https://www.linkedin.com/in/nadyaaureliah/)
+ •  💼 [LinkedIn Profile](https://www.linkedin.com/in/nadyaaureliah/)
 
- •  [Behance Profile](https://www.behance.net/nadyaureliah)
+ •  🎨 [Behance Profile](https://www.behance.net/nadyaureliah)
