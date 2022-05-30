@@ -5,7 +5,7 @@
 
  •  💻  Ex. IBM Cloud & Cognitive Software Intern
  
- •  📧 nadyaaureliah@gmail.com
+ •  📧 [Contact Me](mailto:nadyaaureliah@gmail.com)
  
  •  💼 [LinkedIn Profile](https://www.linkedin.com/in/nadyaaureliah/)
 
